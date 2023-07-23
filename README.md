@@ -1,0 +1,3 @@
+- 👋 Yo, je suis Adriii !
+- 🟣 Follow mon Twitch stp !
+- 🧩 Les Mods c'est trop biennnn !
